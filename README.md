@@ -1,2 +1,2 @@
 # belajar-kolaborasi
-tidak perlu takut berkolaborasi
+kolaborasi sangat mendidik
